@@ -1,1 +1,0 @@
-# gidbyyy.github.io
